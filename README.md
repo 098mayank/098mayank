@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @098mayank
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning Bachelor in computer application
+- 🌱 I’m currently persuing a degree in Bachelor in computer application
 - 💞️ I’m looking to collaborate on some project and internship programme
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
